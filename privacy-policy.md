@@ -65,7 +65,7 @@ We may update this privacy policy periodically. We will notify you of any change
 ## Contact Us
 
 If you have questions about this privacy policy or your data, please contact us at:
-[Your Contact Email]
+wikumjsilva@gmail.com
 
 ## California Privacy Rights
 
